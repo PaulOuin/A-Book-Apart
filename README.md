@@ -11,4 +11,4 @@ les références de trouvées lors de vos recherches créatives (rédactionnel, 
 
 3. Entrainementtuile graphqiue / Web design
 
-4. Création de la.tuile graphique à partir du site A book Apart existant. Reprise de sa charte graphique.
+4. Création de la tuile graphique à partir du site A book Apart existant. Reprise de sa charte graphique.
