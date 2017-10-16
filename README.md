@@ -7,8 +7,8 @@ les références de trouvées lors de vos recherches créatives (rédactionnel, 
 
 1. A Book Apart, tuile graphique
 
-2. Premiere tuile graphqieu LP NUM
+2. Premiere tuile graphique LP NUM
 
-3. Entrainementtuile graphqiue / Web design
+3. Entrainement tuile graphqiue / Web design
 
 4. Création de la tuile graphique à partir du site A book Apart existant. Reprise de sa charte graphique.
